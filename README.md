@@ -1,3 +1,6 @@
+https://naldosilva0.github.io/Andra-Lanches/
+
+
 # Andra Lanches
 
 ⚠️ **Aviso:** Este site **não é oficial** da Andra Lanches. Foi criado apenas para **fins de estudo e portfólio**.  
